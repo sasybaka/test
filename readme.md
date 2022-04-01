@@ -2,4 +2,4 @@
 
 # cao svima asdasd
 
-# ubitese seljaci uaa pederi sta se radi cao svima ja sam yasserstain i imam ponos velika  aaa 
+# ubitese seljaci uaa pederi sta se radi cao svima ja sam yasserstain i imam ponos veliki  aaa 
